@@ -2,4 +2,4 @@
 
 1 -Strogonoff
 
-2- Patê
+2- Pavê
